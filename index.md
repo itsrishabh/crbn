@@ -12,7 +12,6 @@ Basics, and now starting to get into home collections.
 > That’s why we built Kotn from the ground up, working directly with every step of our supply chain, starting with the raw cotton. Think of it like farm-to-table, but for your clothes.
 
 Categories: Basics, Home, Ethical
-IS Goodside Certified
 
 ### New York City
 
