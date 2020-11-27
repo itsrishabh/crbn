@@ -184,6 +184,64 @@ Basics, and now starting to get into home collections.
 
 ---
 
+## Home Goods
+
+### [Delilah Home](https://delilahhome.com/) 
+> We only use quality 100% organic cotton certified to the Global Organic Textile Standard (GOTS) and non toxic hemp products that are better for the environment... Delilah Home textiles do not contain allergenic, carcinogenic, or toxic chemicals commonly used in conventional cotton textile production. As a result, our products are ideal for people with allergies, skin sensitivity, and respiratory problems... We investigate not only every farm and how crops are grown but how the employees are treated. We partner with Fair Trade factories, which are certified to the highest textile standard. We pay ABOVE living wages, while exceeding all local and national laws. No fast fashion sweatshops are used by us. Delilah Home donates 10% of our profits to local charities that support health, kids and pets… causes that make us all better. 
+
+### [Veles](http://veles.com)
+> The first closed-loop cleaner. Water-safe. Naturally derived. Resource negative. (You read that right). Every bottle we make reduces greenhouse gas emissions by offering an alternative to landfill disposal for wasted food. Simplifying the supply chain and reducing raw materials for manufacturing provides additional environmental benefits beyond any other traditionally made product.<br>
+
+### [Clean Cult](http://www.cleancult.com) 
+> cleancult is fixing household cleaning with non-toxic solutions strong enough to take on life's messes and smart enough to save the world—with paper-based, plastic-free packaging and real ingredients.
+
+### [Blueland](https://www.blueland.com/)
+> Revolutionizing cleaning to eliminate single-use plastic. Effective, non-toxic, and only $2 for refills 
+
+### [dropps](http://www.dropps.com)
+> laundry and dishwasher detergent pods that you just toss and go! No measuring, no mess, no wastage, and no heavy jugs!
+
+### [Cedarcide](https://www.cedarcide.com/)
+> Bug repellant and pest treatment for people, pets and homes. Family-Safe Pest Control Delivered to Your Door. Protect Your Family, Home, & Pets Without Harmful Chemicals. Naturally sourced, non-GMO, plant-based ingredients. Cruelty free, never test on animals. Service and community-oriented, partnering with animal shelters, pro-veteran non-profits, and local community organizations. 
+
+### [Made Trade](https://shareasale.com/r.cfm?b=1309577&u=2228658&m=85477&urllink=&afftrack=)
+> carbon neutral shipping, fair trade/sustainable/ etc
+
+### [Eucalypsohome](https://eucalypsohome.com/)
+> Our goal is to make the most sustainable high quality bedding at the lowest possible price. We believe that luxury bed linens do not need to be expensive. They should be kind to the environment and great for you. We start with the finest raw organic eucalyptus to ensure we end with the highest quality bedding, and our pricing is at least 30% - 50% below other luxury bedding brands. We've spent years creating a new type of innovative fabric that is silky soft, breathable, and ultra sustainable. Created in NYC and milled in Austria, our eucalyptus bedding is of the highest quality and thread count. Eucalypso sheets are cultivated using 10x less water and are milled in a zero-footprint, Oeko-tex certified environment. We create our sheets in an environmentally responsible, closed loop production process, which recycles 99.9% of water and solvents used in the creation process. 
+
+### [Shoo Foo](https://www.shoo-foo.com/)
+> Eco friendly bamboo towels and bamboo bed sheets to help reduce toxins in the environment while offering a much softer and durable material.
+
+### [ArtLifting](https://www.artlifting.com/)
+> ArtLifting empowers artists living with homelessness or disabilities through the celebration and sale of their artwork. ArtLifting is about creating opportunity, empowerment, and validation. We offer our artists the chance to secure their own income through the sale of original paintings, prints, and products. 
+
+### [Under The Canopy](https://underthecanopy.com/)
+> At Under the Canopy, we're proud of our roots in sustainable production-something we started back before "organic" and "zero-waste" were ever trendy buzzwords. Today, that tradition continues as we've evolved into the most sustainable home brand on the market, with every aspect of our materials and methods certified to meet rigorous criteria. From the farm to the corporate office, our materials and facilities are audited and approved each season for verified claims to the policies we uphold. Whether it is the prevention of pesticide sprays on cotton fields, or testing for toxins and carcinogens in dyes, each component of manufacturing is scrutinized and optimized to make the best quality product. 
+
+### [Slate and Salt](https://slateandsalt.com/)
+> Our mission is to bring you a curated collection of modern, one-of-a-kind pieces while preserving traditional techniques and supporting the Fair Trade movement. We work closely with small social enterprises to facilitate dignified working opportunities in areas of extreme poverty. We encourage you to explore other cultures and traditions in a socially conscious way.
+
+### [Ten Thousand Villages](https://www.tenthousandvillages.com/home-decor)
+> We create opportunities for artisans in developing countries to earn income by bringing their products and stories to our markets through long-term, fair trading relationships.
+
+### [Ethique Stain Remover](https://ethique.com/collections/household) 
+> Flash is a solid laundry bar. Perfect for handwashing delicates, taking away when travelling or for when you are out in the wilderness and need to wash clothing, dishes or even hands. Not suitable for washing machines. Made with 100% biodegradable ingredients, pure essential oils and white Kaolin clay to remove oils and dirt. Smells beautiful and will last for wash after wash after wash...
+
+### [Buffy](https://buffy.co/) 
+> We make comforters, sheets, and pillows that are earth-friendly, skin-friendly, cruelty-free, and super-soft. Compared to cotton and down bedding, we’ve recycled 10 million bottles (and counting!), conserved over 150 million gallons of water, and avoided harming over 2 million geese.
+
+### [Kaiyo](https://kaiyo.com/)
+> Kaiyo is an online marketplace committed to great design, exceptional customer care, and a more sustainable planet. We believe that buying well-made, pre-owned furniture is a better choice than buying new, because great design is sustainable design — meaning it’s timeless, accessible, and built to last for a lifetime of good vibes. (currently serving the New York metro area) 
+
+### [Viva Terra](https://bit.ly/2OikPan) 
+> At VivaTerra we are dedicated to bringing an eco-friendly lifestyle to every part of your home decor (and more)! We support artisan and fair trade organizations worldwide to work for healthy working conditions, fair wages, and sustainable development for their communities + helping to provide a sustainable market for their goods, our customers benefit from a selection of unique, artisan- and hand-made goods and gifts for your home and garden. Whether crafted with recycled glass, vintage fabrics, salvaged metal or reclaimed wood, we stand behind products created using recycled materials. While we boast an ever-growing list of products made by artisans across the globe, we proudly support the artists, crafters, makers, builders, carpenters and all other types of artisans right in our own backyards by offering products proudly made in the USA. Buying domestically can be more eco-conscious, as it reduces transportation needs and the energy and natural resources expended in the process. Whether crafted with FSC-certified or reclaimed wood we stand behind products created using recycled materials. Our reclaimed wood collection is one of our most treasured, for its positive impact on limiting deforestation, and because of its distinct aesthetic and individuality.
+
+### [Nebia by Moen](https://nebia.com/products/nebia-by-moen)
+> Our warmest shower yet with 2X greater coverage than a standard shower while saving about half of the water. 45% water savings If you take a 10 minute shower with a regular (2.5 gpm) shower, it would take you 18 minutes to use the same amount of water 
+
+---
+
 ## Personal Care & Cosmetics
 
 ### [Alima Pure](https://www.alimapure.com/)
