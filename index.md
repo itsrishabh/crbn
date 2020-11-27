@@ -168,6 +168,22 @@ Basics, and now starting to get into home collections.
 
 ---
 
+## Health
+
+### [Seed](https://seed.com/) 
+> We’re pioneering the inquiry, application, and communication of microbiome science to improve human and planetary health. We think in systems and sustainability in the pursuit of materials that are not just earth-friendly, but can leave a beneficial footprint. Collaborating with experts in bacteria from around the world, we are working towards biomaterials and unique applications of upcycled waste as an alternative to plastic. Each component of our refill system is designed to protect your Daily Synbiotic and be gentler on our Earth. Simply keep your jar from your welcome kit and your refill arrives each month.
+
+### [Ritual](https://ritual.com/) 
+> We believe that your vitamin should only contain nutrients lacking in most diets, in high-quality forms that your body can actually use. We searched the globe for clean, obsessively-researched ingredients – and we’re committed to showing exactly where they come from and why. 
+
+### [MegaFood](https://www.megafood.com/)
+> Our certifications ensure our products meet the highest standards for ecological and social sustainability. We believe our bodies recognize real food and so we work with trusted farm partners- who share our commitment to organic and regenerative agriculture- to craft our premium supplements with organic food like oranges, cranberries, turmeric, ginger and kale for example. BCorp, Organic, GMO Free, and more. 
+
+### [hi](http://buyhi.co/)
+> A deliciously balanced protein, using just 12 ingredients. Packed with B12, iron, fiber, and gut-boosting prebiotic, chitin. Keto and paleo friendly! More servings than a standard “tub” with 90% less plastic! 0 added sugar, dairy free, gluten free, soy free, organic
+
+---
+
 ## Personal Care & Cosmetics
 
 ### [Alima Pure](https://www.alimapure.com/)
@@ -260,3 +276,25 @@ Basics, and now starting to get into home collections.
 
 ### [Cedarcide](https://www.cedarcide.com/people-products/) 
 > Bug repellant and pest treatment for people, pets and homes. Family-Safe Pest Control Delivered to Your Door. Protect Your Family, Home, & Pets Without Harmful Chemicals. Naturally sourced, non-GMO, plant-based ingredients. Cruelty free, never test on animals. Service and community-oriented, partnering with animal shelters, pro-veteran non-profits, and local community organizations. 
+
+---
+
+## Travel/Lifestyle
+### [Qwstion](https://www.qwstion.com/) 
+> Functional details and sustainable design. Swiss backpack brand QWSTION is known for combining design and functionality with sustainability. Since 2008 the design studio has been developing versatile carry solutions for everyday use – with an understated look and a low environmental footprint
+
+### [Sustainable Travel International](https://sustainabletravel.org/our-work/carbon-offsets/)
+> Our carbon offset portfolio includes forest conservation, ecosystem restoration, renewable energy, energy efficiency, and household devices projects around the globe. 
+
+### [Carbon Fund](https://carbonfund.org/carbon-offsets/) 
+> You can be a leader in the fight against climate change: make a tax-deductible donation to offset your carbon footprint and support our industry-leading carbon reduction projects.
+
+### [Cool Effect](https://www.cooleffect.org/)
+> Combining science, expertise, and transparency, we are creating a community built around one simple vision: give people the power and confidence to band together and reduce the carbon pollution that causes climate change.
+
+### [Getaround Car Sharing](https://www.getaround.com/) 
+> Getaround is a carsharing platform powered by the Getaround Connect® technology which provides drivers access to rent and unlock great cars shared by people nearby. It's easy for people to share their cars and for others to rent from them. 300 cities and 7 countries 
+
+---
+
+## 
