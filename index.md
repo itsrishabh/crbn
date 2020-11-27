@@ -1,5 +1,5 @@
 
-#  A list of sustainable brands by category
+# A list of sustainable brands by category
 
 ##  Clothing
 
@@ -165,3 +165,98 @@ Basics, and now starting to get into home collections.
 
 ### [Groceries Apparel](http://grocerieaapparel.com)   
 > We source directly to the seed and trace all of our fabrics from the farm to our factory. We only use 100% GMO-free, Pesticide & Herbicide-free, Recycled & Fair-traded Ingredients. From seed to skin we are committed to developing awareness of all lifecycle stages of our fabrics and garments, starting with the harvest cycle that our fabrics derive from all the way through to the California based and home-sewn production of our finished garments and distribution to our customers.
+
+---
+
+## Personal Care & Cosmetics
+
+### [Alima Pure](https://www.alimapure.com/)
+> Minimal ingredients for maximum impact. All our products are formulated with this in mind. We use only the highest quality, purest ingredients. Without compromise, our products are never tested on animals. We are celebrating 10 years of being carbon neutral, by offsetting 100% of our carbon emissions. We have been a member of 1% for the Planet since our first year in business, donating 1% of our annual gross revenue (sales, not profit) to grassroots environmental organizations dedicated to protecting our planet. BCorp certified. Less mess, minimal waste. Our refillable compacts hold magnetic pans for easy on-the-go application, and can easily be swapped out for a new pan when your product runs out.
+
+### [Versed Skincare](https://versedskin.com/)
+> We’re the non-toxic, vegan, sustainably-minded skincare brand powered by experts and developed with you. Our mission is simple: MAKE GOOD SKIN AND CLEAN PRODUCTS FOR ALL.
+
+### [Ilia Cosmetics](https://iliabeauty.com/)
+> We believe in skin that looks like skin—and radiance that comes naturally. With transparency as our guide and color as our vehicle, we challenge the conventions of clean beauty to create something radically new, through safe, potent formulas that protect and revive your skin. We see skincare and makeup as one, and early on realized botanicals were not enough. Our potent formulas are designed with active levels of skincare ingredients that shield skin from environmental stressors. We strive towards more sustainable packaging through the use of recycled aluminum, glass components, and responsibly sourced paper. But it isn’t enough—that’s only the beginning of the product’s lifecycle. We believe end-of-life is far more important, to ensure products don’t end up in a landfill.
+
+### [Soapwalla](https://amzn.to/2rZn5ut)
+> Soapwalla products are pure, effective, and trustworthy. We are only as good as the ingredients we source. We partner with small farms to obtain the highest quality materials available, without compromising our integrity or dedication to the environment. Rachel visits suppliers to ensure they share Soapwalla’s value structure of respect, authenticity, and transparency. Soapwalla products are made by hand in small batches in our Brooklyn, NY studio. We use sustainable, organically grown and even edible ingredients, and don't use questionable additives such as sodium lauryl sulfate, parabens, pthalates, petrochemical byproducts, or synthetic ingredients. 
+
+### [Osmia Organics](https://amzn.to/2s1dx27)
+> Osmia's mission is to educate and energize conscious consumers who will savor our luxury skin care products in their daily wellness rituals. Our line is formulated with exceptional, natural ingredients, which we hope will inspire people to live in health and joy, with a softer impact on the planet. 
+
+### [Herbivore](https://bit.ly/35dTnAe) 
+> CREATED WITH: Natural ingredients, plant-based food-grade cold-pressed oils, steam distilled therapeutic-grade essential oils, GMO-free soy wax, recyclable and reusable packaging, many certified organic ingredients. CREATED WITHOUT: Synthetic ingredients, parabens, sodium laurel sulfate, phthalates, chemicals, fillers, animal testing, mineral oils, petroleum. 
+
+### [Lush](https://www.lushusa.com/)
+> Principles are based on concocting small batches of products made from their own recipes. The founders experiment and play with ingredients, innovate and focus on issues close to their hearts, like fighting against animal testing. They developed a buying policy that ensured that no supplier tested on animals and funded work that highlighted alternatives to animal testing. The first shop was simply designed, and naked products did away with frivolous packaging—most money for this new business went into keeping things simple and sourcing fresh, quality ingredients.
+
+### [Antonym](http://shrsl.com/1ywiy) 
+> Antonym Cosmetics is a line of makeup that is gentle on the skin and the environment, yet offers exciting colors with strong pigmentation and gorgeous luminosity. Our entire makeup line is Ecocert certified...With Antonym you may be chic, glamorous as well as natural, cruelty-free and eco-friendly. 
+
+### [Elate](https://elatebeauty.com/) 
+> At Elate Cosmetics we are committed to empowering everyone to use the best possible products for their daily rituals. We create safe, effective beauty products using cruelty-free ingredients, ethical marketing, and sustainable practices. With a goal of becoming the first waste free cosmetic company, our products offer innovative solutions to the otherwise wasteful practices of the beauty industry, and fill a gap in your beauty ritual. Our aim is to allow our customers to buy well, use less, and love themselves (and the Earth) more.
+
+### [Kjaer Weis](http://shrsl.com/1ywk2)
+> Kjaer Weis is leading the movement with high-performing, luxury makeup that is, as everything should be, organic and sustainable. We believe that the packaging of our products should be just as good for the world as our makeup inside is for your skin, without having to compromise luxury. With our intelligent refill system, you don’t need to waste money or create waste on packaging that’s made to be discarded. The architecturally bold design of KW products is meant to be kept –built out of beautiful, quality metal that can be refilled again and again and again. 
+
+### [RMS Beauty](http://shrsl.com/1ywjo)
+> RMS Beauty products are formulated with raw, food grade and organic ingredients in their natural state, allowing their living, healing attributes to penetrate and rejuvenate the skin. In their purest form, enzymes, vitamins, antioxidants and their healing properties remain fully intact, encouraging amazing potential for anti-aging effects. Packaging for RMS Beauty products is minimal, recyclable or reusable. 
+
+### [KeepingItNatural Zero Waste Mascara](https://www.etsy.com/listing/731806168/mineral-mascara-black-creamy-cake?ref=reviews)
+> Creamy cake mascara that is shipped zero waste and plastic free, comes in a recylcable tin container, and is cruelty free. 
+
+### [Dermatone](https://amzn.to/358X2PI)
+> Water-Free Zinc Oxisde Formulation with SPF 30 to protect your lips and face.
+
+### [Bite](http://bitetoothpastebits.com)
+> The only all-natural, plastic-free way to replace the paste you've used your whole life. We only ever use glass bottles. Why? Unlike plastic, glass is infinitely recyclable, looks great, and breaks down into sand at the end of its life. We’ll send your refill Bites in 100% home compostable pouches every four months with our subscription. Yep, still no plastic. For a reduced carbon footprint, Bite products are shipped using existing postal routes. It may take a little longer, but on average this will have a smaller carbon footprint than driving to the store to pick up a plastic tube. 
+
+### [Mable Toothbrushes](https://www.brushmable.com/) 
+> Plastic free toothbrushes made from sustainable bamboo that can be composted (with the exception of the bristles. Also anti-bacterial and plastic-free packaging. 
+
+### [EcoFella Bamboo Charcoal Toothbrushes](https://amzn.to/38KeWuP)
+> the bamboo handle is compostable and the packaging is made from 100% recycled paper. The smooth wavy design of the handle makes it easy to grip and comfortable to use. For every package sold, 8 trees are planted. 
+
+### [Ethique](https://amzn.to/35l0N4R)
+> We’re on a mission to rid the world of plastic waste and we want you to be a part of it. Each bar lasts 2-5 times longer than bottled beauty products because they’re super concentrated. Ethique is the herbivore of the beauty world, using only plant-based and vegan ingredients like coconut oil, cocoa butter and essential oils, little to no preservatives and definitely no palm oil! So it’s basically like a delicious holiday for your skin, with no guilt. We are cruelty free. To date we have stopped over 5 million plastic bottles from being made & disposed of into landfills. 
+
+### [Urb Apothecary](http://urbapothecary.com)
+> Only the highest quality organic ingredients are used in every URB APOTHECARY product. Each one reflects good intentions, love for design, and deep fascination with the healing power of botanicals. All products are cruelty-free, sls-free, synthetic fragrance-free, and free of chemical additives and preservatives. 
+
+### [Neutrogena facial cleansing glycerin bar](https://amzn.to/2purswJ) 
+> Low-waste packaging, bulk, and very affordable
+
+### [Leaf](http://leafshave.com)
+> A plastic-free shave people actually love. We reinvented the razor. Someone needed to do it (humbly, in our opinion) and so we did. Metal straws are popping out of reusable tumblers. People are investing in fewer, but better things. And disposable plastic razor cartridges just don't cut it anymore. 
+
+### [Zero Waste Simply Shampoo](https://zerowastestore.com/collections/hair-care)
+
+### [Package Free Shop Skin Care](https://packagefreeshop.com/collections/health-beauty?_=pf&pf_t_category=skincare) 
+
+### [Hello Hi Bar](http://hellohibar.com)
+> Salon-quality shampoos and conditioners. No plastic. No sulfates, parabens, phthalates or silicones either. Just beautiful hair. 
+
+### [B.A.R.E Soaps](http://www.bare-soaps.com)
+> From ingredients to packaging to carbon offsetting each shipment, our objective is to provide you a way to purchase goods with minimized carbon footprint. Most of our bar soaps are wrapped in plantable packaging. Just wet the paper, place it under a thin layer of soil, and watch it grow into wildflowers! Every purchase gives 20% back to support sustainable initiatives such as employing women in India to recycle used hotel soaps for distribution in slums & clinics 
+
+### [Kindred Black](https://www.kindredblack.com/collections/slow-skincare)
+> A historically rooted collection of simple and effective oils and toners for face, body, and hair that can be blended and mixed with one another. Inspired by a slower way of living, the ritualistic line is packaged in precious, fully plastic-free, hand blown bottles and vials sealed with waxed corks. 
+
+### [Raw Elements](https://amzn.to/2O2NBeW)
+> RAW ELEMENTS USA sunscreen is gentle enough for use in infant care and meets the performance demands of the most extreme athletes. We utilize a sustainable, recycled, Non Nano, uncoated Zinc Oxide as the sole Active Ingredient. This is delivered in a gentle, Certified Organic ingredient, Eco-Safe, Reef-Safe, Leaping Bunny - Cruelty Free certified, Non-GMO Project Verified, NPA Certified Natural formula. Non plastic, recyclable packaging available.
+
+### [Meow Meow Tweet](https://amzn.to/32YEjVp)
+> We are a small-batch skin care company that creates vegan products with pure, all natural and organic ingredients...A firm belief in taking care of the planet– as well as our skin and ourselves– means that Meow Meow Tweet is committed to using the least amount of plastic packaging. All goods are either hand wrapped in PCW paper or housed in glass containers. 
+
+### [Little Seed](https://amzn.to/2pwzGUX) 
+> Our mission is to provide humanely and sustainably produced soap and skincare to our community, and to encourage other small businesses to embrace land stewardship and sustainable production. 
+
+### [Aesop](https://amzn.to/2CYjjUn)
+> Our objective has always been to formulate skin, hair and body care products of the finest quality; we investigate widely to source plant-based and laboratory-made ingredients, and use only those with a proven record of safety and efficacy. A sincere interest in intelligent and sustainable design extends to every aspect of Aesop’s workings. 
+
+### [Aether](http://shrsl.com/1ywjw)
+> The formulas we create use natural ingredients and non-toxic synthetic ingredients combined with plants. Āether Beauty products are formulated to always be EU compliant-that means we ban over 1300 chemicals from our products. And we don't stop there. We've added a few more to the list while also always staying clean, vegan and 100% cruelty-free. Zero waste.
+
+### [Cedarcide](https://www.cedarcide.com/people-products/) 
+> Bug repellant and pest treatment for people, pets and homes. Family-Safe Pest Control Delivered to Your Door. Protect Your Family, Home, & Pets Without Harmful Chemicals. Naturally sourced, non-GMO, plant-based ingredients. Cruelty free, never test on animals. Service and community-oriented, partnering with animal shelters, pro-veteran non-profits, and local community organizations. 
