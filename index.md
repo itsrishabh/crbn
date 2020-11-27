@@ -1,5 +1,5 @@
-
 # A list of sustainable brands by category
+Building out an evergrowing directory of brands to shop from that are ethical/sustainable. There will be a vetting process in the future, for now we're taking the word of the retailer/person recommending the brand to us.
 
 ##  Clothing
 
