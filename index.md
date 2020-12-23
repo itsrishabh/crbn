@@ -380,7 +380,7 @@ Basics, and now starting to get into home collections.
 ### [Baggu](https://bit.ly/2KHRrbj)
 > We create products to have long, useful lives. We design to minimize waste, use sustainable materials, and have a long-standing partnership with our manufacturer in China, who is committed to ethical and environmentally responsible practices.
 
-### [Etsy Juturna Studios Dishwashing Soap](https://www.etsy.com/listing/720403899/natural-dishwashing-solid-soap-bar-zero
+### [Etsy Juturna Studios Dishwashing Soap](https://www.etsy.com/listing/720403899/natural-dishwashing-solid-soap-bar-zero)
 > Zero waste, natural and organic skin care and home products
 
 ### [Cooler Kitchen Compost bin](https://amzn.to/2OsxO8b)
