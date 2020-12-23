@@ -355,4 +355,44 @@ Basics, and now starting to get into home collections.
 
 ---
 
-## 
+##  Kitchen / Grocery / Food
+### [Misfit Market](https://www.misfitsmarket.com/)
+> Produce delivery services help local farmers get perfectly fine produce to the market that might otherwise be left in the field or be thrown own.
+
+### [Imperfect Foods](https://www.imperfectfoods.com/)
+> Produce delivery services help local farmers get perfectly fine produce to the market that might otherwise be left in the field or be thrown own.
+
+### [Perfectly Imperfect Produce](https://www.perfectlyimperfectproduce.com/)
+> Produce delivery services help local farmers get perfectly fine produce to the market that might otherwise be left in the field or be thrown own.
+
+### [Hungry Harvest](https://www.hungryharvest.net/)
+> Produce delivery services help local farmers get perfectly fine produce to the market that might otherwise be left in the field or be thrown own.
+
+### [Life Without Plastic Kitchen Products List](https://lifewithoutplastic.com/eat-and-drink/?aff=575)
+> Products to make your time in the kitchen zero waste, non toxic and sustainable
+
+### [Bio Bag Food Scrap Compost Bags](https://amzn.to/2OOTMTd)
+> Certified compostable by the Biodegradable Products Institute to meet the ASTM D6400 standard. Made from plants, vegetable oils and Mater-Bi; contains no polyethylene
+
+### [Reusable produce bags](https://amzn.to/2rRn0sA)
+> Why use new plastic bag for every type of produce you buy each time you go to the grocery store?
+
+### [Baggu](https://bit.ly/2KHRrbj)
+> We create products to have long, useful lives. We design to minimize waste, use sustainable materials, and have a long-standing partnership with our manufacturer in China, who is committed to ethical and environmentally responsible practices.
+
+### [Etsy Juturna Studios Dishwashing Soap](https://www.etsy.com/listing/720403899/natural-dishwashing-solid-soap-bar-zero
+> Zero waste, natural and organic skin care and home products
+
+### [Cooler Kitchen Compost bin](https://amzn.to/2OsxO8b)
+> Easy to use and open, dishwasher safe
+
+### [Bokashi Composter](https://amzn.to/2qwmIqT)
+> Bokashi composting is an anaerobic fermentation process which allows your food waste to be broken down into microbe and nutrient rich compost in just 4 to 6 weeks. Included are 2 x 1.75 lb bags of premium grade bokashi bran. This is enough bran to ferment approximately 8 full kitchen composters, and will last a typical family at least 4-6 months.
+
+### [Bee's Wrap](https://amzn.to/2QxNxpa)
+Our beeswax is sourced from sustainably-managed hives in the US, and we use only organic jojoba oil. Bee’s Wrap packaging is recyclable and plastic-free. Green America Certified CompanyOur products are reusable, biodegradable, and compostable. At the end of your wrap’s useful life in the kitchen, cut the wrap into strips to add to your compost heap, or wrap them around pieces of kindling and use as a natural and effective fire starter. As a Green America certified company and a proud B Corp, Bee's Wrap® is committed to using our business as a vehicle for social change, bettering the lives of our customers, employees, community, and planet. As a family business, we are vested in the values and environment we pass along to future generations.
+
+### [Yeti Cheese](https://yeticheese.com/)
+Real cheese, made from plants. Yeti Cheese emits 37% of the greenhouse gases, uses 18% of the land area and 12% of the water cheese from animals does. If you're an average cheese eater, this means that each year you'll save 173 kg of CO2-equivalents, 633 m2 of land and 46,800 liters of water. That's like driving your car for 1,400 km, the area of 3 tennis courts and showering for a whole year. Oh, and it's also healthier for you and no animals need to suffer.
+
+---
