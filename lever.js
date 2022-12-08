@@ -161,6 +161,7 @@ window.loadLeverJobs = function (options) {
             '"data-work-type="' +
             groupedPostings[i].teams[j].postings[k].categories.commitment +
             '">' +
+            '<div class="content">' +
             '<a class="lever-job-title" href="' +
             groupedPostings[i].teams[j].postings[k].hostedUrl +
             '">' +
@@ -169,7 +170,7 @@ window.loadLeverJobs = function (options) {
             (sanitizeForHTML(
               groupedPostings[i].teams[j].postings[k].categories.location
             ) || "") +
-            "</span></li>";
+            "</span></div></li>";
         }
 
         content += "</ul></li></ul>";
