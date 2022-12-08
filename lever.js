@@ -170,7 +170,7 @@ window.loadLeverJobs = function (options) {
             (sanitizeForHTML(
               groupedPostings[i].teams[j].postings[k].categories.location
             ) || "") +
-            "</span></div><button>Apply</button></li>";
+            "</span></div><a href='" + groupedPostings[i].teams[j].postings[k].hostedUrl + " ' target='_blank'>Apply</a></li>";
         }
 
         content += "</ul></li></ul>";
